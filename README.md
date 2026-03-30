@@ -61,4 +61,4 @@
 
 ## 📫 Connect With Me
 
-- LinkedIn: https://www.linkedin.com/in/mahathi-ab-bb7b82390?utm_source=share_via&utm_content=profile&utm_medium=member_android
+- LinkedIn: https://www.linkedin.com/in/mahathi-a-b-bb7b82390?utm_source=share_via&utm_content=profile&utm_medium=member_android
